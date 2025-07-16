@@ -27,7 +27,7 @@ Paragraphs, particularly those that wrap from one page to the next, inherently p
 “Does this part have the information I’m looking for?”
 
 (“Can I skip ahead?”)
-David F. Smydra Jr. is a reporter, writer, and editor living in Silicon Valley. He occasionally posts similar bursts of media fancy here.);
+David F. Smydra Jr. is a reporter, writer, and editor living in Silicon Valley. He occasionally posts similar bursts of media fancy here.');
       }
     }
   }
