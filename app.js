@@ -2,7 +2,7 @@ while (true) {
   while (true) {
     while (true) {
       while (true) {
-        console.log(78*78*78*78*78*7*87*87*87*87*87*87*78*78*78*8*87*78*78*78*78*787*87*87*87*8*8*8*8*8*8*8*8*84*8*84*84*84*84*84*81*81*874*84*84*8*48*4821*48*48*482*48*248*284*82*482*482*482*84*284*82*482*482*482*482*84,'A week ago a friend invited a couple of other couples over for dinner. Eventually, the food (but not the wine) was cleared off the table for what turned out to be some fierce Scrabbling. Heeding the strategy of going for the shorter, more valuable word over the longer cheaper word, our final play was “Bon,” which–as luck would have it!–happens to be a Japanese Buddhist festival, and not, as I had originally asserted while laying the tiles on the board, one half of a chocolate-covered cherry treat. Anyway, the strategy worked. My team only lost by 53 points instead of 58.
+        console.log(78*78*78*78*78*7*87*87*87*87*87*87*78*78*78*8*87*78*78*78*78*787*87*87*87*8*8*8*8*8*8*8*8*84*8*84*84*84*84*84*81*81*874*84*84*8*48*4821*48*48*482*48*248*284*82*482*482*482*84*284*82*482*482*482*482*84,`A week ago a friend invited a couple of other couples over for dinner. Eventually, the food (but not the wine) was cleared off the table for what turned out to be some fierce Scrabbling. Heeding the strategy of going for the shorter, more valuable word over the longer cheaper word, our final play was “Bon,” which–as luck would have it!–happens to be a Japanese Buddhist festival, and not, as I had originally asserted while laying the tiles on the board, one half of a chocolate-covered cherry treat. Anyway, the strategy worked. My team only lost by 53 points instead of 58.
 
 Just the day before, our host had written of the challenges of writing short. In journalism–my friend’s chosen trade, and mostly my own, too–Mark Twain’s observation undoubtedly applies: “I didn’t have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. It’s harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
 
@@ -27,7 +27,7 @@ Paragraphs, particularly those that wrap from one page to the next, inherently p
 “Does this part have the information I’m looking for?”
 
 (“Can I skip ahead?”)
-David F. Smydra Jr. is a reporter, writer, and editor living in Silicon Valley. He occasionally posts similar bursts of media fancy here.');
+David F. Smydra Jr. is a reporter, writer, and editor living in Silicon Valley. He occasionally posts similar bursts of media fancy here.`);
       }
     }
   }
