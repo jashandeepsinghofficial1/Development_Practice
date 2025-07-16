@@ -9,7 +9,550 @@ Just the day before, our host had written of the challenges of writing short. In
 Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
 
 Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
 
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+
+Paragraphs, particularly those that Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+
+Paragraphs, particularly those that Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+
+Paragraphs, particularly those that Just the day before, our host had written of the challenges of writing short. In journalismmy friends chosen trade, and mostly my own, tooMark Twains observation undoubtedly applies: “I didnt have time to write a short letter, so I wrote a long one instead.” The principle holds across genres, in letters, reporting, and other writing. Its harder to be concise than to blather. (Full disclosure, this blog post will clock in at a blather-esque 803 words.) Good writing is boiled down, not baked full of air like a souffl??. No matter how yummy souffl??s may be. Which they are. Yummy like a Grisham novel.
+
+Lately, Ive been noticing how my sentences have a tendency to keep going when I write them onscreen. This goes for concentrated writing as well as correspondence. (Twain probably believed that correspondence, in an ideal world, also demands concentration. But he never used email.) Last week I caught myself packing four conjunctions into a three-line sentence in an email. Thats inexcusable. Since then, I have tried to eschew conjunctions whenever possible. Gone are the commas, the ands, buts, and sos; in are staccato declaratives. Better to read like bad Hemingway than bad Faulkner.
+
+Length as we all know, and for lack of a more original or effective way of saying itmatters. But (ahem), its also a matter of how you use it. Style and length are technically two different things.
+
+Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
+
+Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
+
+I rather think the latter. Clive Thompson wrote last month in the NYT Magazine that constant digital updates, after a day, can begin “to feel like a short story; follow it for a month, and its a novel.” He was right to see the bits as part of a larger whole. The words now flying through our digital pipes & ether more or less tend to resemble parts of bigger units, perhaps even familiar genres. But stories and novels have definite conclusions; they also have conventional lengths. Quick, how long is the conventional blog, when you add up all of its posts and comments? How long is the longest email thread you send back and forth on a single topic?
+
+Most important: What exactly are we writing when wre doing all of this writing? I wont pretend to coin a whole new term here; I still think the best we can muster is a more fitting analogue. And if we must find an analogue in an existing literary unit, I propose the paragraph. Our constant writing has begun to feel like a neverending digital paragraph. Not a tight, stabbing paragraph from The Sun Also Rises or even a graceful, sometimes-slinking, sometimes-soaring paragraph from Absalom! Absalom!, I mean a convoluted, haphazard, meandering paragraph, something like Kerouacs original draft of On the Roadonly taped together by bytes. And 1 percent as interesting.
+
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr.  from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr.  from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
+Paragraphs, particularly those that wrap from one page to the next, inherently possess a necessary suspension that tightens the reades focus yet breaks down the narrative into digestable sections. Just like emails or blogs or texts. The mental questions while reading all of these feel the same:
+
+“Is this the last line or is there more?”
+
+“Is the writer really trying to say something here, or just setting up a larger point?”
+
+“Does this part have the information Im looking for?”
+
+(“Can I skip ahead?”)
+David F. Smydra Jr. 
 Try putting some prose onscreen, though, and they mix themselves up pretty quickly. This has much to do with the time constraints we claim to feel in the digital age. We dont have time to compose letters and post them anymoremuch less pay postage, what with all the banks kinda-sorta losing our money these daysso we blast a few emails. We dont have time to talk, so we text. We dont have time to text to specific people, so we update our Facebook status. We dont have time to write essays, so we blog.
 
 Im less interested by the superficial reduction of wordsi.e. the always charming imho or c u l8rthan the genres in which those communications occur: blogs, texts, tweets, emails. All these interstitial communiques, do they really reflect super brevity that would make Twain proud? Or do they just reflect poorly stylized writing that desperately seeks a clearer form?
